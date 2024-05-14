@@ -1,0 +1,1 @@
+![image](https://github.com/MaxRubcov/screenshot/blob/main/%D0%A1%D0%BA%D1%80%D0%B8%D0%BD%D1%88%D0%BE%D1%82%2015-05-2024%20001611.jpg?raw=true)
